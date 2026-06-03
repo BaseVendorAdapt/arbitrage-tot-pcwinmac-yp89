@@ -1,4 +1,4 @@
-# 
+# Best arbitrage trading bot add-ons for Mac OS | Elite arbitrage trading bot add-ons for PC Windows. Featuring scalping algorithms and Web3 connectivity — optimized for maximum performance on every platform.
 
 
 
